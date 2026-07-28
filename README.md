@@ -1,0 +1,1 @@
+# NextGen_AI_Rajkumar_Assignments
